@@ -1,4 +1,4 @@
-# 53 Must-Know ChatGPT Interview Questions in 2025
+# 53 Must-Know ChatGPT Interview Questions in 2026
 
 <div>
 <p align="center">
